@@ -1,1 +1,1 @@
-Good code, better if I could fully Understand it.
+Good code (F useless.)
